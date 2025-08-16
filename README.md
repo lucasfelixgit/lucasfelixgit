@@ -1,4 +1,4 @@
-# 👋 Olá! Eu sou o Lucas 
+# 👋 Olá! Eu sou Lucas Félix 
 
 Engenheiro de Software, 22 anos - Brasil.
 
